@@ -8,4 +8,12 @@ We all students were delighted to attend the  first year inauguration ceremony i
 ~•A very renowned personality, Mahesh Chandra Garewal, former Cabinet Minister of Punjab and a respected politician, visited our auditorium. He inspired us with his motivational words, emphasizing that two things are of utmost importance in life: faith in God and the blessings of our parents. He encouraged us to work hard in our studies, to cultivate a spirit of unity and brotherhood, and to strive for excellence—especially in the field of engineering. His words left a lasting impression, motivating us to aim higher and achieve our goals.
 
 ## Day 2: 1Aug2025 
-~• A lec
+~• Our first lecture was delivered by Priyadarshini Ma’am, who spoke on the subject of Universal Human Values. She guided us on how a human being should approach goal setting, develop the right perspective for achieving goals, and handle various emotions and feelings. She also shared how we can motivate others and stay inspired in life.
+
+Priyadarshi Ma’am addressed common challenges faced by students in daily life, such as stress, anxiety, overthinking, and tension, offering practical ways to overcome them. She even assigned us thought-provoking home assignments to reinforce our learning.
+
+An accomplished academic, she holds a B.Tech and M.Tech in Electronics, followed by a Ph.D. Later, she chose to dedicate herself to teaching and guiding students in Universal Human Values, a subject introduced by AICTE to promote holistic education.
+
+Her lecture was highly interactive—she engaged us with questions, encouraged discussions, and inspired us to work harder, manage our emotions effectively, and lead a balanced, positive life. She truly proved to be a teacher of spirit and motivation.
+
+ ~• 
